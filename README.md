@@ -18,3 +18,6 @@ https://discuss.freetutorials.us/t/the-complete-react-native-course-create-beaut
 https://discuss.freetutorials.us/t/get-linux-academy-all-cloud-certification-training-courses-80-gb/11496
 https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
 https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
+https://discuss.freetutorials.us/t/get-zoolz-100gb-free-lifetime-storage/18456
+https://discuss.freetutorials.us/t/expired-change-your-life-in-21-days-udemy/19963
+https://discuss.freetutorials.us/t/the-modern-javascript-bootcamp-2018-udemy-13-gb-download-free/15649
