@@ -16,3 +16,4 @@ https://discuss.freetutorials.us/t/masterclass-com-bundle-62-3-gb-17-classes-pac
 https://discuss.freetutorials.us/t/udacity-data-science-all-courses-54-05gb-download-free/11648/7
 https://discuss.freetutorials.us/t/the-complete-react-native-course-create-beautiful-apps-13-0-gb-udemy-download-free/25531
 https://discuss.freetutorials.us/t/get-linux-academy-all-cloud-certification-training-courses-80-gb/11496
+https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
