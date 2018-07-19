@@ -21,3 +21,6 @@ https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptoc
 https://discuss.freetutorials.us/t/get-zoolz-100gb-free-lifetime-storage/18456
 https://discuss.freetutorials.us/t/expired-change-your-life-in-21-days-udemy/19963
 https://discuss.freetutorials.us/t/the-modern-javascript-bootcamp-2018-udemy-13-gb-download-free/15649
+https://discuss.freetutorials.us/t/expired-python-game-development-build-11-total-games/15452
+https://discuss.freetutorials.us/t/packtpub-com-mastering-centos-7-linux-server-518-mb-download-free/23912
+https://discuss.freetutorials.us/t/frontendmasters-com-web-development-courses-310-95-gb-pack-download-free/12192
