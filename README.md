@@ -17,3 +17,4 @@ https://discuss.freetutorials.us/t/udacity-data-science-all-courses-54-05gb-down
 https://discuss.freetutorials.us/t/the-complete-react-native-course-create-beautiful-apps-13-0-gb-udemy-download-free/25531
 https://discuss.freetutorials.us/t/get-linux-academy-all-cloud-certification-training-courses-80-gb/11496
 https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
+https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
