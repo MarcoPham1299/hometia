@@ -29,3 +29,7 @@ https://discuss.freetutorials.us/t/python-game-development-build-11-total-games-
 https://discuss.freetutorials.us/t/node-js-advanced-concepts-udemy-download-free-2018-highest-rated/14285
 https://discuss.freetutorials.us/t/get-linux-academy-all-cloud-certification-training-courses-80-gb/11496
 https://discuss.freetutorials.us/t/udacity-data-science-all-courses-54-05gb-download-free/11648
+https://discuss.freetutorials.us/t/lynda-com-business-complete-416-gb-pack-download-free/12427
+https://discuss.freetutorials.us/t/certified-ethical-hacker-v9-tool-kit-slides-full-pack-31-50-gb-download-free/12285
+https://discuss.freetutorials.us/t/gmat-gre-toefl-ielts-lsat-preparation-books-mocks-etc-9-1-gb-download-free/21007
+https://discuss.freetutorials.us/t/alibaba-2018-the-complete-guide-to-import-from-alibaba-to-sell-on-amazon-2-34-gb-download-free/24923
