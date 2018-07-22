@@ -28,3 +28,4 @@ https://discuss.freetutorials.us/t/get-how-to-make-135-a-day-cloning-a-slotmachi
 https://discuss.freetutorials.us/t/python-game-development-build-11-total-games-16-9-gb-udemy-download-free/26016
 https://discuss.freetutorials.us/t/node-js-advanced-concepts-udemy-download-free-2018-highest-rated/14285
 https://discuss.freetutorials.us/t/get-linux-academy-all-cloud-certification-training-courses-80-gb/11496
+https://discuss.freetutorials.us/t/udacity-data-science-all-courses-54-05gb-download-free/11648
