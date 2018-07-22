@@ -34,3 +34,4 @@ https://discuss.freetutorials.us/t/certified-ethical-hacker-v9-tool-kit-slides-f
 https://discuss.freetutorials.us/t/gmat-gre-toefl-ielts-lsat-preparation-books-mocks-etc-9-1-gb-download-free/21007
 https://discuss.freetutorials.us/t/alibaba-2018-the-complete-guide-to-import-from-alibaba-to-sell-on-amazon-2-34-gb-download-free/24923
 https://discuss.freetutorials.us/t/udacity-machine-learning-engineer-nanodegree-12-84gb-download-free/11587
+https://vnexpress.net/tin-tuc/the-gioi/viet-nam-phan-ung-truoc-loi-keu-goi-chong-luat-an-ninh-mang-cua-17-nghi-si-my-3780924.html
