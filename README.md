@@ -37,6 +37,7 @@ https://discuss.freetutorials.us/t/udacity-machine-learning-engineer-nanodegree-
 https://vnexpress.net/tin-tuc/the-gioi/viet-nam-phan-ung-truoc-loi-keu-goi-chong-luat-an-ninh-mang-cua-17-nghi-si-my-3780924.html
 https://discuss.freetutorials.us/t/the-complete-react-native-course-create-beautiful-apps-13-0-gb-udemy-download-free/25531
 https://discuss.freetutorials.us/t/get-free-premium-udemy-courses-v-3-28-01-2018-limited-only/6869
+https://discuss.freetutorials.us/t/get-learn-machine-learning-in-3-months/10621/8
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 Piggy - Automatic Coupons & Cash Back
