@@ -39,6 +39,8 @@ https://discuss.freetutorials.us/t/the-complete-react-native-course-create-beaut
 https://discuss.freetutorials.us/t/get-free-premium-udemy-courses-v-3-28-01-2018-limited-only/6869
 https://discuss.freetutorials.us/t/get-learn-machine-learning-in-3-months/10621/8
 https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
+https://discuss.freetutorials.us/t/node-js-the-complete-guide-to-build-restful-apis-udemy-download-free/16035
+https://www.udemy.com/the-complete-android-oreo-developer-course/
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 
