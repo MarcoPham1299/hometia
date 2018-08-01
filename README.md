@@ -38,6 +38,7 @@ https://vnexpress.net/tin-tuc/the-gioi/viet-nam-phan-ung-truoc-loi-keu-goi-chong
 https://discuss.freetutorials.us/t/the-complete-react-native-course-create-beautiful-apps-13-0-gb-udemy-download-free/25531
 https://discuss.freetutorials.us/t/get-free-premium-udemy-courses-v-3-28-01-2018-limited-only/6869
 https://discuss.freetutorials.us/t/get-learn-machine-learning-in-3-months/10621/8
+https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptocurrency-9-10gb-udemy-download-free/17208
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 
