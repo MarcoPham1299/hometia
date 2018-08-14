@@ -42,6 +42,7 @@ https://discuss.freetutorials.us/t/learn-python-by-building-a-blockchain-cryptoc
 https://discuss.freetutorials.us/t/node-js-the-complete-guide-to-build-restful-apis-udemy-download-free/16035
 https://www.udemy.com/the-complete-android-oreo-developer-course/
 https://onedrive.live.com/?authkey=%21ALuiGZkwW_xb8WQ&id=C04CCC123454703%21129&cid=0C04CCC123454703
+https://discuss.freetutorials.us/t/android-kotlin-development-masterclass-using-android-oreo-udemy-download-free/13091
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 
