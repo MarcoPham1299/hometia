@@ -44,6 +44,7 @@ https://www.udemy.com/the-complete-android-oreo-developer-course/
 https://onedrive.live.com/?authkey=%21ALuiGZkwW_xb8WQ&id=C04CCC123454703%21129&cid=0C04CCC123454703
 https://discuss.freetutorials.us/t/android-kotlin-development-masterclass-using-android-oreo-udemy-download-free/13091
 https://discuss.freetutorials.us/t/get-cloud-app-96-worth-free-365days-premium/10278
+https://discuss.freetutorials.us/t/linux-administration-complete-bootcamp-2018-1-78-gb-udemy-download-free/27511
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 
