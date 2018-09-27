@@ -54,6 +54,7 @@ https://discuss.freetutorials.us/t/linux-administration-complete-bootcamp-2018-1
 https://discuss.freetutorials.us/t/startupbros-e-commerce-empire-19-0-gb-download-free/24924
 http://preview.byaviators.com/theme/realsite/
 https://www.freetutorials.us/amazon-affiliate-marketing-seo-250-videos-18-0-hours/
+https://discuss.freetutorials.us/t/get-neil-patel-advanced-marketing-program-20-43gb-worth-free/7976
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 
@@ -68,6 +69,7 @@ https://kinhdoanh.vnexpress.net/tin-tuc/doanh-nghiep/cuoc-dua-mot-ung-dung-co-mo
 Piggy - Automatic Coupons & Cash Back
 
 - Laravel Job:
+https://github.com/goodnesskay/Laravel-Open-Source-Projects#O
 https://www.indeed.co.uk/viewjob?jk=3d650373c67d8513&tk=1cn8osb9j92kvamu&from=serp&vjs=3
 https://stackoverflow.com/jobs/201224/php-developer-100-remote-laravel-graphql-acuity-scheduling?med=clc
 https://stackoverflow.com/jobs/197849/software-engineer-san-francisco-or-remote-usa-hellosign?med=clc
