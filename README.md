@@ -74,7 +74,8 @@ https://www.indeed.co.uk/viewjob?jk=3d650373c67d8513&tk=1cn8osb9j92kvamu&from=se
 https://stackoverflow.com/jobs/201224/php-developer-100-remote-laravel-graphql-acuity-scheduling?med=clc
 https://stackoverflow.com/jobs/197849/software-engineer-san-francisco-or-remote-usa-hellosign?med=clc
 https://stackoverflow.com/jobs/160223/senior-lead-php-engineer-compucorp-ltd
-
+https://stackoverflow.com/jobs/197525/senior-reactjs-developer-blockchain-kraken-bitcoin-exchange?so=i&sec=True&pg=1&offset=9&q=Laravel
+https://stackoverflow.com/jobs/200831/fullstack-developer-laravel-plus-react-about-you-gmbh?so=i&pg=1&offset=0&q=Laravel
 - Fuel PHP:
 https://www.tutorialspoint.com/fuelphp/fuelphp_presenters.htm
 https://fuelphp.com/forums/discussion/13366/presenter-and-different-layouts
