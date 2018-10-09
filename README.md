@@ -76,6 +76,7 @@ https://stackoverflow.com/jobs/197849/software-engineer-san-francisco-or-remote-
 https://stackoverflow.com/jobs/160223/senior-lead-php-engineer-compucorp-ltd
 https://stackoverflow.com/jobs/197525/senior-reactjs-developer-blockchain-kraken-bitcoin-exchange?so=i&sec=True&pg=1&offset=9&q=Laravel
 https://stackoverflow.com/jobs/200831/fullstack-developer-laravel-plus-react-about-you-gmbh?so=i&pg=1&offset=0&q=Laravel
+https://stackoverflow.com/jobs/remote-developer-jobs
 - Fuel PHP:
 https://www.tutorialspoint.com/fuelphp/fuelphp_presenters.htm
 https://fuelphp.com/forums/discussion/13366/presenter-and-different-layouts
