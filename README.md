@@ -58,6 +58,7 @@ https://www.freetutorials.us/amazon-affiliate-marketing-seo-250-videos-18-0-hour
 https://discuss.freetutorials.us/t/get-neil-patel-advanced-marketing-program-20-43gb-worth-free/7976
 https://www.udemy.com/the-essential-algorithms-and-data-structures/
 https://discuss.freetutorials.us/t/lynda-photoshop-cs6-one-on-one-complete-4-courses-15-2-gb-download-free/31576
+https://discuss.freetutorials.eu/t/get-udemy-coupons-limited/13201
 
 Dart and Flutter
 https://www.udemy.com/dart-and-flutter-the-complete-developers-guide/
