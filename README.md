@@ -96,3 +96,6 @@ http://tukiemtientrenebayamazon.edumall.vn/?utm_source=edumall-aff&edmaff_id=679
 
 - Phat trien chieu cao
 https://suckhoe.vnexpress.net/tin-tuc/khoe-dep/dan-ong/chang-trai-cao-them-14-cm-sau-mot-nam-tap-gym-3840368.html
+
+- Tra xanh matcha
+https://japana.vn/bot-tra-xanh-matcha-milk-tsuji-toshi-sp-1621.jp?utm_source=GoogleShopping&utm_medium=CPC&utm_campaign=bottranxanh_milktsuji&gclid=EAIaIQobChMI-6WNkpL53gIVVxOPCh1uuQ5nEAQYAyABEgJUkvD_BwE
