@@ -66,6 +66,10 @@ https://www.udemy.com/dart-and-flutter-the-complete-developers-guide/
 
 https://discuss.freetutorials.us/t/the-complete-react-fullstack-course-udemy-download-free/13309
 
+The coding interview
+https://www.freetutorials.eu/master-the-coding-interview-data-structures-algorithms/
+https://www.freetutorials.eu/the-coding-interview-bootcamp-algorithms-data-structures-2/
+
 https://www.nagios.com/
 https://discuss.freetutorials.us/t/get-free-limited-time-udemy-coupons-3-6/1761
 https://www.digitalocean.com/products/droplets/?utm_medium=Display&utm_source=StackOverflow_TLB&utm_campaign=2018_Brand&utm_content=Conversation_with_100_728x90
