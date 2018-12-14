@@ -105,3 +105,6 @@ https://suckhoe.vnexpress.net/tin-tuc/khoe-dep/dan-ong/chang-trai-cao-them-14-cm
 
 - Tra xanh matcha
 https://japana.vn/bot-tra-xanh-matcha-milk-tsuji-toshi-sp-1621.jp?utm_source=GoogleShopping&utm_medium=CPC&utm_campaign=bottranxanh_milktsuji&gclid=EAIaIQobChMI-6WNkpL53gIVVxOPCh1uuQ5nEAQYAyABEgJUkvD_BwE
+
+- Biet thu bien Phan Thiet
+http://cafebiz.vn/phan-thiet-xuat-hien-nhung-biet-thu-bien-5-sao-gia-4-7-ty-20181213113610901.chn
