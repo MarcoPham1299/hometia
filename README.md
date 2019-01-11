@@ -115,3 +115,5 @@ http://cafebiz.vn/phan-thiet-xuat-hien-nhung-biet-thu-bien-5-sao-gia-4-7-ty-2018
 
 - Host in Airbnb
 https://www.airbnb.com/host/homes?af=92001885&c=.pi0.pk58866346964_282910551575_c_&gclid=EAIaIQobChMIyN3vgNfV3wIVlTEqCh3ygAXzEAEYASAAEgLFDfD_BwE
+
+- Startup and resolve
