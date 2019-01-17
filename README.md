@@ -63,6 +63,7 @@ https://www.udemy.com/the-essential-algorithms-and-data-structures/
 https://discuss.freetutorials.us/t/lynda-photoshop-cs6-one-on-one-complete-4-courses-15-2-gb-download-free/31576
 https://www.freecoursesonline.me/code-with-mosh-the-complete-node-js-course/
 https://discuss.freetutorials.eu/t/become-a-wordpress-developer-unlocking-power-with-code-15-7-gb-udemy-download-free/37430/6
+https://www.freetutorials.eu/the-complete-wordpress-website-business-course/
 https://discuss.freetutorials.eu/t/get-udemy-coupons-limited/13201
 http://ngoton.it/algorithm/#path=dp/fibonacci/basic
 https://www.udemy.com/react-tutorial-and-projects-course/
