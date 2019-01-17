@@ -66,6 +66,7 @@ https://discuss.freetutorials.eu/t/become-a-wordpress-developer-unlocking-power-
 https://discuss.freetutorials.eu/t/get-udemy-coupons-limited/13201
 http://ngoton.it/algorithm/#path=dp/fibonacci/basic
 https://www.udemy.com/react-tutorial-and-projects-course/
+https://www.freetutorials.eu/modern-react-with-redux-3/
 
 Dart and Flutter
 https://www.udemy.com/dart-and-flutter-the-complete-developers-guide/
