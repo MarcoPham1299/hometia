@@ -121,3 +121,6 @@ https://www.airbnb.com/host/homes?af=92001885&c=.pi0.pk58866346964_282910551575_
 
 - Startup and resolve
 https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-va-giai-phap.html
+
+- HD Computer
+226 Nguyễn Thái Bình, P12 , Quận Tân Bình
