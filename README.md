@@ -124,3 +124,11 @@ https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-v
 
 - HD Computer
 226 Nguyễn Thái Bình, P12 , Quận Tân Bình
+
+- List good Video Course
+1.A-Z machine learning in python and R by Krill Emerenko.
+2. Machine learning boot camp in python by Jose Portila.
+3. Pyspark boot camp by same Jose.
+4. SQL and database design by Krill
+5. Complete Oracle SQL by Imitiaz
+6. Currently watching Plotly interactive visualization by Jose…
