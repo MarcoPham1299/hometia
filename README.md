@@ -132,3 +132,6 @@ https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-v
 4. SQL and database design by Krill
 5. Complete Oracle SQL by Imitiaz
 6. Currently watching Plotly interactive visualization by Jose…
+
+- Affiliates Marketing for Amazon
+https://discuss.freetutorials.eu/t/franklin-hatchett-savage-affiliates-19-1-gb-download-free/40400
