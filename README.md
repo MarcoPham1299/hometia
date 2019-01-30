@@ -136,3 +136,7 @@ https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-v
 - Affiliates Marketing for Amazon : 
 
 https://discuss.freetutorials.eu/t/franklin-hatchett-savage-affiliates-19-1-gb-download-free/40400
+
+- Gửi cho Quỳnh Ái
+
+http://cafebiz.vn/la-thu-bo-gui-con-gai-dung-bao-gio-khoc-vi-mot-nguoi-dan-ong-phu-nu-luon-phai-dat-su-nghiep-va-uoc-mo-len-hang-dau-20190130091032843.chn
