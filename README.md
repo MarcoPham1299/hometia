@@ -138,5 +138,5 @@ https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-v
 https://discuss.freetutorials.eu/t/franklin-hatchett-savage-affiliates-19-1-gb-download-free/40400
 
 http://cafebiz.vn/la-thu-bo-gui-con-gai-dung-bao-gio-khoc-vi-mot-nguoi-dan-ong-phu-nu-luon-phai-dat-su-nghiep-va-uoc-mo-len-hang-dau-20190130091032843.chn
-
+http://cafebiz.vn/giu-mom-giu-mieng-bieu-hien-co-ban-nhat-ve-su-chan-thanh-tin-duc-va-thanh-cong-cua-mot-nguoi-co-tri-tue-20190228161651141.chn
 https://vnexpress.net/doi-song/vi-sao-cha-me-phai-co-gang-giau-con-moi-de-thanh-dat-3887578.html
