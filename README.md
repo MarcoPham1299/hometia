@@ -142,3 +142,5 @@ http://cafebiz.vn/la-thu-bo-gui-con-gai-dung-bao-gio-khoc-vi-mot-nguoi-dan-ong-p
 http://cafebiz.vn/giu-mom-giu-mieng-bieu-hien-co-ban-nhat-ve-su-chan-thanh-tin-duc-va-thanh-cong-cua-mot-nguoi-co-tri-tue-20190228161651141.chn
 
 https://vnexpress.net/doi-song/vi-sao-cha-me-phai-co-gang-giau-con-moi-de-thanh-dat-3887578.html
+
+https://www.elle.vn/the-gioi-van-hoa/nhung-cau-noi-hay-trong-phim-nham-mat-thay-mua
