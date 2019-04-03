@@ -144,3 +144,8 @@ http://cafebiz.vn/giu-mom-giu-mieng-bieu-hien-co-ban-nhat-ve-su-chan-thanh-tin-d
 https://vnexpress.net/doi-song/vi-sao-cha-me-phai-co-gang-giau-con-moi-de-thanh-dat-3887578.html
 
 https://www.elle.vn/the-gioi-van-hoa/nhung-cau-noi-hay-trong-phim-nham-mat-thay-mua
+
+Laravel MultiFile Upload 
+
+https://viblo.asia/p/vi-du-ve-upload-nhieu-files-trong-laravel-55-bJzKmMWOK9N
+https://hdtuto.com/article/laravel-57-multiple-file-upload-with-validation-example
