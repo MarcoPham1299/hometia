@@ -149,4 +149,5 @@ Laravel MultiFile Upload
 
 https://viblo.asia/p/vi-du-ve-upload-nhieu-files-trong-laravel-55-bJzKmMWOK9N
 https://hdtuto.com/article/laravel-57-multiple-file-upload-with-validation-example
+
 https://www.xwatch.vn/blog/qua-tang-sinh-nhat-cho-ban-gai.html#42_Hop_nhac
