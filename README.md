@@ -154,3 +154,27 @@ https://hdtuto.com/article/laravel-57-multiple-file-upload-with-validation-examp
 https://www.xwatch.vn/blog/qua-tang-sinh-nhat-cho-ban-gai.html#42_Hop_nhac
 
 Web => Forex => Game => Affiliate => Amazon
+
+Gửi Giang:
+
+Chài ai, viết gì bây giờ đây
+- Lời nói gió bay, nói hk hay, hay run, viết thư tay còn đó
+
+- Còn nhiều việc phải làm, chờ đợi
+
+Hi Giang, Thành định nói ra những điều Thành viết dưới đây nhưng chắc sẽ lòng vòng với hk đủ tự tin nên Thành gửi qua giấy nhé, Thành nghĩ lời nói gió bay còn bút mực
+giấy viết thì sẽ còn đó.
+Sau hôm 8/3 về Thành hk hiểu sao những phút cuối mình nói lung tung hết luôn, thật sự lúc đó còn khó hơn khi Thành thuyết trình đề tài gì ở trường vậy, đây là lần thứ rất nhiều Thành chuẩn bị
+một điều mà mình sẽ nói trước, nhưng là lần đầu tiên Thành nói điều mà mình chuẩn bị với người mà Thành sẽ nói thích cũng là lần đầu tiên Thành nói thích một người.
+Thành vô ý tứ hơi vô duyên với kém tinh tế quá.
+
+Cảm giác của Thành hk biết đúng hay hk nhưng sau hôm đó hình như Giang hk thích Thành lắm, nhắn tin Giang chỉ reply thôi, hẹn Giang cảm giác khó hơn trước lắm luôn,
+Thành xin lỗi nha, đáng lẽ ra Thành hk nên hỏi những câu vô duyên lúc vậy.
+
+Gặp nhau trong đây cũng lâu, nhiều lần rồi Thành hk biết là đã thích Giang lúc nào nữa, hồi học cấp 3 với Thành, Giang đúng là học sinh theo kiểu con nhà người ta, khép kín
+chăm chỉ học tập và học giỏi, người ta thường nói nếu mà siêng năng chăm chỉ sẽ học giỏi nhưng dù có chăm có siêng đến mấy mà hk có tố chất, hk thông minh thì
+khó mà giỏi được đúng hk nà. Không những vậy mà qua những lần gặp Thành cảm nhận Giang là một cô gái tử tế khéo léo và có nét tinh tế nửa.
+
+Có một điều mà Thành hk thể dối lòng nửa là Giang có một nét rất là thanh lịch và duyên dáng dù đôi khi hơi ngượng ngùng và gượng gạo gì đó.
+
+Tóm lại ở Giang có nhiều điểm mà Thành thích lắm luôn, vừa thông minh, vừa từ tế, vừa xinh đẹp.
