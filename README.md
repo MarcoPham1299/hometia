@@ -1,4 +1,4 @@
-# hometia
+# BestToStudy
 629/4F CMT8, P.15, Q.10, TP.HCM
 
 https://hoatuoishop.com/shop-hoa-tuoi-ho-thi-ky/
