@@ -154,3 +154,5 @@ https://hdtuto.com/article/laravel-57-multiple-file-upload-with-validation-examp
 https://www.xwatch.vn/blog/qua-tang-sinh-nhat-cho-ban-gai.html#42_Hop_nhac
 
 Web => Forex => Game => Affiliate => Amazon
+
+https://stackoverflow.com/jobs/252243/sr-full-stack-engineer-7-cups?med=clc
