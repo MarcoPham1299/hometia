@@ -1,6 +1,7 @@
 # BestToStudy
 629/4F CMT8, P.15, Q.10, TP.HCM
 
+https://studyinjerusalem.com/index.html?utm_source=Google_Banners&utm_medium=CPC&utm_campaign=HUJI_MBA_ASIA_New_Audience_gdn_E8785-115&utm_content=MBA_Banner_B&tfa_266=Google_Banners&tfa_285=Google_Banners&tfa_268=Banner_B&tfa_289=Banner_B&tfa_270=ASIA&tfa_415=ASIA&tfa_260=spring_2019&tfa_288=spring_2019&tfa_262=2019/03/14&tfa_301=14-3-19&tfa_258=CPC&tfa_286=CPC&tfa_272=MBA&tfa_287=MBA&gclid=EAIaIQobChMIkM7--Jmu4gIVVp9oCh3RKQnkEAEYASAAEgIUXPD_BwE
 https://hoatuoishop.com/shop-hoa-tuoi-ho-thi-ky/
 https://discuss.freetutorials.us/t/gmat-gre-toefl-ielts-lsat-preparation-books-mocks-etc-9-1-gb-download-free/21007
 https://discuss.freetutorials.us/t/lynda-com-business-complete-416-gb-pack-download-free/12427/22
