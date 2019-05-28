@@ -157,3 +157,5 @@ https://www.xwatch.vn/blog/qua-tang-sinh-nhat-cho-ban-gai.html#42_Hop_nhac
 Web => Forex => Game => Affiliate => Amazon
 
 https://stackoverflow.com/jobs/252243/sr-full-stack-engineer-7-cups?med=clc
+
+https://news.zing.vn/mon-hoa-de-lam-va-nhung-cau-noi-quen-thuoc-cop-mac-thay-co-post950646.html
