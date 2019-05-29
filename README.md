@@ -158,4 +158,4 @@ Web => Forex => Game => Affiliate => Amazon
 
 https://stackoverflow.com/jobs/252243/sr-full-stack-engineer-7-cups?med=clc
 
-https://news.zing.vn/mon-hoa-de-lam-va-nhung-cau-noi-quen-thuoc-cop-mac-thay-co-post950646.html
+https://immi.globevisa.com/Canada/federal_skilled_trade_immigration.shtml
