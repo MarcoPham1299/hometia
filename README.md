@@ -165,3 +165,7 @@ https://discuss.ftuforum.com/t/laracasts-php-javascript-laravel-testing-tools-co
 https://tinhte.vn/threads/lam-gi-khi-di-lam-ma-bi-dong-nghiep-ghet.2964446/
 
 https://colorlib.com/wp/html5-real-estate-website-templates/
+
+http://unicoderbd.com/theme/html/uniland/rtl/index.php
+
+https://preview.themeforest.net/item/nest-real-estate-html-template/full_screen_preview/20191775?redirect_back=true&ref=cirvitis
