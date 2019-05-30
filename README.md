@@ -163,3 +163,5 @@ https://immi.globevisa.com/Canada/federal_skilled_trade_immigration.shtml
 https://discuss.ftuforum.com/t/laracasts-php-javascript-laravel-testing-tools-complete-pack-38-4-gb-exclusive-download-free/51983
 
 https://tinhte.vn/threads/lam-gi-khi-di-lam-ma-bi-dong-nghiep-ghet.2964446/
+
+https://colorlib.com/wp/html5-real-estate-website-templates/
