@@ -136,6 +136,7 @@ https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-v
 6. Currently watching Plotly interactive visualization by Jose…
 
 - Affiliates Marketing for Amazon : 
+https://discuss.ftuforum.com/t/kevin-david-facebook-ads-ninja-masterclass-14-7-gb-download-free/44613
 
 https://discuss.freetutorials.eu/t/franklin-hatchett-savage-affiliates-19-1-gb-download-free/40400
 
