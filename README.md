@@ -174,3 +174,5 @@ Bài Max Hay Nài:
 
 http://cafebiz.vn/binh-phap-cua-cam-va-quyen-ru-cua-ke-sat-gai-la-gi-p1-20190528122205095.chn
 
+http://cafebiz.vn/binh-phap-cua-cam-va-quyen-ru-cua-ke-sat-gai-la-gi-p2-20190602120828368.chn
+
