@@ -169,3 +169,8 @@ https://colorlib.com/wp/html5-real-estate-website-templates/
 http://unicoderbd.com/theme/html/uniland/rtl/index.php
 
 https://preview.themeforest.net/item/nest-real-estate-html-template/full_screen_preview/20191775?redirect_back=true&ref=cirvitis
+
+Bài Max Hay Nài:
+
+http://cafebiz.vn/binh-phap-cua-cam-va-quyen-ru-cua-ke-sat-gai-la-gi-p1-20190528122205095.chn
+
