@@ -135,6 +135,8 @@ https://techtalk.vn/tong-hop-cac-loi-thuong-gap-khi-lap-trinh-vien-khoi-nghiep-v
 5. Complete Oracle SQL by Imitiaz
 6. Currently watching Plotly interactive visualization by Jose…
 
+https://medium.com/quick-code/topcourses/home
+
 - Affiliates Marketing for Amazon : 
 https://discuss.ftuforum.com/t/kevin-david-facebook-ads-ninja-masterclass-14-7-gb-download-free/44613
 
