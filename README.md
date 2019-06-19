@@ -182,3 +182,7 @@ http://cafebiz.vn/binh-phap-cua-cam-va-quyen-ru-cua-ke-sat-gai-la-gi-p2-20190602
 http://cafebiz.vn/nhin-viec-nho-doan-dai-cuc-xem-chi-tiet-doan-nhan-pham-tra-loi-khi-nhan-duoc-tin-nhan-khong-chi-la-phep-lich-su-ma-con-la-thuoc-do-do-tin-cay-cua-con-nguoi-20190605111241234.chn
 
 https://english.api.rakuten.net/unogs/api/unogs?gclid=EAIaIQobChMIm63wwLfy4gIVUTEqCh2pswLaEAEYBSAAEgJfVvD_BwE
+
+https://www.forbes.com/sites/palomacanterogomez/2019/01/22/the-7-tips-to-success-that-are-worth-25-million-dollars/#2468cdb66096
+
+https://angelhack.com/
