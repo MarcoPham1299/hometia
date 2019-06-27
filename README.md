@@ -167,6 +167,8 @@ https://discuss.ftuforum.com/t/laracasts-php-javascript-laravel-testing-tools-co
 
 https://tinhte.vn/threads/lam-gi-khi-di-lam-ma-bi-dong-nghiep-ghet.2964446/
 
+http://cafebiz.vn/su-khac-biet-giua-luong-thang-80-trieu-va-luong-nam-80-trieu-nguoi-gioi-kiem-tien-khong-chi-co-muc-tieu-ro-rang-ma-con-biet-hoach-dinh-nghe-nghiep-20190624112155906.chn
+
 https://colorlib.com/wp/html5-real-estate-website-templates/
 
 http://unicoderbd.com/theme/html/uniland/rtl/index.php
