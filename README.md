@@ -189,4 +189,4 @@ https://www.forbes.com/sites/palomacanterogomez/2019/01/22/the-7-tips-to-success
 
 https://angelhack.com/
 
-https://nha.chotot.com/quan-binh-thanh/thue-phong-tro/59815980.htm
+https://nha.chotot.com/quan-binh-thanh/thue-phong-tro/59815980.htm https://nha.chotot.com/quan-binh-thanh/thue-phong-tro/58990010.htm
